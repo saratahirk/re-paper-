@@ -62,14 +62,14 @@ This project is licensed under the **MIT License** – free to use, modify, and 
 If you'd like to get involved or collaborate, feel free to reach out:
 
 - 🌐 Website (coming soon)
-- 📧 Email: [your email address]
-- 📷 Instagram: @re.paper.co
+- 📧 Email: [saratahir5702@gmail.com]
+- 📷 Instagram: @repaper___
 
 ---
 
 ## ✨ Created by
 
-**Sara [Your Last Name]**  
+**Sara tahir**  
 Founder & CEO, Re-Paper  
 UNICEF Venture Fund Applicant
 
